@@ -6,7 +6,7 @@ In 2021 I've started my new career as a Software Developer.
 
 I'm currently studing at Mohawk College.
 
-Hope increase my network and share some knowledge!
+I hope to increase my network and share some knowledge!
 
 Please e-mail me at:
 
