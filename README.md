@@ -10,6 +10,6 @@ I hope to increase my network and share some knowledge!
 
 Please e-mail me at:
 
-rsandrini@hotmail.com
+rsf.ferreira88@gmail.com
 
 
